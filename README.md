@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hello there! I'm Vinay, a final year BCA student with a passion for development. 💻<br>🔍 Currently, I'm actively seeking internship or job opportunities to further enhance my development knowledge. I'm eager to work and contribute to real-world projects. 📚<br>💡 I believe in the power of technology to make a positive impact.<br>📧 Feel free to reach out to me at vinaybh0107@gmail.com or connect with me on https://www.linkedin.com/in/vinay-b-h-06a09825b/ . Let's connect and explore exciting possibilities together! 🔗<br>Looking forward to new challenges and continuous learning as I embark on my development journey. 🌟🚀💻
+👋 Hello there! I'm Vinay, a recent graduate with a BCA degree and a passion for development.  💻<br>🔍 Currently, I'm actively seeking internship or job opportunities to further enhance my development knowledge. I'm eager to work and contribute to real-world projects. 📚<br>💡 I believe in the power of technology to make a positive impact.<br>📧 Feel free to reach out to me at vinaybh0107@gmail.com or connect with me on https://www.linkedin.com/in/vinay-b-h-06a09825b/ . Let's connect and explore exciting possibilities together! 🔗<br>Looking forward to new challenges and continuous learning as I embark on my development journey. 🌟🚀💻
 
 
 ## 🌐 Socials:
